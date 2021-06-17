@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MrNotPlayZz
+- 👀 I’m interested in Learning.
+- 🌱 I’m currently learning How to collaborate.
+- 💞️ I’m looking to collaborate on How to reach me.
+- 📫 How to reach me turns out u can't.
